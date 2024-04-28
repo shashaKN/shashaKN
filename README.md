@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shashaKN
+- 🌱 I’m currently learning how to code.
+- 📫 How to reach me https://www.linkedin.com/in/marielle-shane-bermas-540b0a276/
